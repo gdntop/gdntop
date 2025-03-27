@@ -12,6 +12,6 @@
 <br>
 <br>
 <br>
-shoutout to daesung & youngbae I love them too! ot4eva!
+shoutout to daesung & youngbae, I love them too! ot4ever!
 <br>
 </h5>
